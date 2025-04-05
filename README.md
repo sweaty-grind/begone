@@ -1,25 +1,5 @@
 # begone
 
-dude.  this all looks like monees but i dont have any lol...  the idiot problem...  devestate trillions of dollars can't get out of social support.  you know??  sharkey must really love me or something because i hold some suspicions as to his ass.
+i mean... we are here today where we are at.  you're alive.  i'm alive.  and everyone's the joker.  i wonder sharkey whack one of you like this lol...  somethings i assumed he would not do...  which is waste time.  you know its not the cause by now dude.. i dont really care you did any of this.  the bonus is that its a noble deed indeed.
 
-give me some time to cook this one lol...
-
-so i mean after we are finished calling each other names lol.. you started this...  and messing around... ahem...  shit head doctors.  no review panel.. makes sense? not really...  but you assume it or something and i feel bad for wrecking your shit that you stole from me...  so i mean, what is it then???
-
-so lets say this much.  the deadline for payment already passed lol.  i warned you about this lol...  errmmm. sharkey is bad when its like this lol...  i avoid it cause i exert influence lol.  if you don't gamble  a bigger hand and never get paid for it lol...  this sucks lol...
-
-so i need monsters to sync this shit.  greens are just leafy shit.  what am i a herbivore??
-
-so this is a very hard point i must deliver.  i am not the one for you...  i'm here for everyone...  sharkey is your lord not me lol...  seems there's been a little quaking in the world..  going up to me going back to vietnam lol...  in this state lol...  still gonna get earth quake...
-
-anyways, i think i dicovered how i type when i'm not using ginseng.  just get stimulants.  like coke zero with the caffeine...
-
-so yeah.   its linking enough that i can make something out of it...
-
-so what i wanted to really talk was about compensation for this work.  i must say that hellish feeling in my head is something unwanted cause its really bad but you made me do it anyways.  and even i don't want to admit it.  i would just go down there and smash glass.  except this isn't about me lol.  this is for someone else...
-
-so i must say, i did a big dookie on your works.  stupid idiot playing ghosts lol...  why you not elite???  lol...  i dont know bro.  its not like that.  its just like they reach you and its done.  but you wanted game i didn't want to cause its lame but you asked for it.  i dont know what to do here bro... make it so you win?? do you remember stuff or you forget everything lol...
-
-so i figured out something.  caffeine is busy work.  even stupid work...  mostly...  and well its good for partial link lol...  oh yeah i was talking about a hellish sensation somewhere around here.  i dont know bro.  you should pay already.  i know we are near the climax but seriously.  this shit never over i dont understand why you won't pay for it already.
-
-wow.  this language form from caffeine is sloppy as heck.  its not consistent.  oh well i dont want to talk to you guys anyways.  sorry i was trying to think it through but the side of caution/lame you would commit is a little daunting...
+so like i wondered this rules changed when some idiots came and 5 years later we still fucking broke...  sigh...  i do mind this one though...  i wonder why i spent so many working hours you came here for ultristic shit i can't say no to.  pick your marbles cause i wont' be offering too much more with you guys.
